@@ -1,8 +1,8 @@
 Ola eu sou maria cha cha cha 
 
-Estudanteda alura 🫀
+Estudanteda alura 
 
-tenho 15 anos 🫂
+tenho 15 anos 
 
 estudo no colegio caetano munhoz da rocha🇧🇷
 
